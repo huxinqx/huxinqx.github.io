@@ -1,4 +1,4 @@
-# [huxinqx.github.io](https://sikuquanshu.gitbook.io/sikuquanshu-docs/)
+# [Huxinqx.github.io](https://sikuquanshu.gitbook.io/sikuquanshu-docs/)
 一、[四库全书·Fun：在趣味中邂逅经典](https://www.sikuquanshu.fun)
 网址：https://www.sikuquanshu.fun
 
